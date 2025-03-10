@@ -1,1 +1,0 @@
-# Modelo-3D_Piso-6-UAM-C
